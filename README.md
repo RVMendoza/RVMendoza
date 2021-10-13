@@ -9,5 +9,5 @@ I'm currently a Design System engineer at [Spark Design System](https://github.c
 ## 💌 [Learn more about me, and say hi!](http://www.rvmendoza.com).
 
 
-🏳️‍🌈 Queer Filipinx Diaspora -- [they](https://www.mypronouns.org/they-them)/he
+🏳️‍🌈 Queer Filipinx Diaspora -- [they/them](https://www.mypronouns.org/they-them)
 
